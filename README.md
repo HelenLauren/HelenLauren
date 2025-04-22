@@ -2,7 +2,7 @@
 
 ###
 
-<p align="left">𖹭. Currently pursuing a bachelor's degree in System Information at PUCPR;<br>𖹭. Always trying to keep up with new technologies;<br>𖹭. The eager to learn new things is what motivates me every day!!</p>
+<p align="left">♡. Currently pursuing a bachelor's degree in System Information at PUCPR;<br>♡. Always trying to keep up with new technologies;<br>♡. The eager to learn new things is what motivates me every day!!</p>
 
 ###
 
